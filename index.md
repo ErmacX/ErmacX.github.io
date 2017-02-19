@@ -1,4 +1,14 @@
 # ErmacX News
+a sound, measured and serious place for balanced and thoughtful discourse
+
+Bullshit of the day:
+
+
+
+
+
+Aren't we witnessing the most proactive and independent President of a generation trample the swamp, left in utter disbelief?
+You think Jeff Sessions is playing Sega? Hes about to tear thi shit apart, recused and smiling. These Democrats do not seem o know what a spescial prosecutor is.
 
 You can use the [editor on GitHub](https://github.com/ErmacX/ErmacX.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
