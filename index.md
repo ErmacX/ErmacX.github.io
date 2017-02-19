@@ -1,5 +1,7 @@
+
 # ErmacX News
-a sound, measured and serious place for balanced and thoughtful discourse
+[###Markdown] # Header 1 a sound, measured and serious place
+for balanced and thoughtful discourse
 
 Bullshit of the day:
 
