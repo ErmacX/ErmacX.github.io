@@ -5,11 +5,12 @@ for balanced and thoughtful discourse
 
 Bullshit of the day:
 
-Here is a link to [wiki home page](https://github.com/ErmacX/ErmacX.github.io.wiki.git)
+Here is a link to [wiki home page](https://github.com/ErmacX/ErmacX.github.io/wiki)
 
 Test2
 Test3
 Test4
+Test5
 
 
 
