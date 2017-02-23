@@ -2,7 +2,7 @@
 # ErmacX News
 ### A superior, thoughtful political quora - measured, balanced, and refined for meaningful discourse.
 ___
-![flag](https://github.com/ErmacX/ErmacX.github.io/blob/master/americanflagtattered.jpg)
+![flag](https://github.com/ErmacX/ErmacX.github.io/blob/master/Old_american_flag_a.jpg)
 ___
 Here is a link to [the General Discussion at the Wiki Home Page](https://github.com/ErmacX/ErmacX.github.io/wiki)
 ___  
