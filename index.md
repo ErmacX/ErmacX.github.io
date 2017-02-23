@@ -7,5 +7,11 @@ ___
 Here is a link to [the General Discussion at the Wiki Home Page](https://github.com/ErmacX/ErmacX.github.io/wiki)
 ___  
 Aren't we witnessing the most proactive and independent President of a generation trample the swamp, left in utter disbelief?
-You think Jeff Sessions is playing Sega? Hes about to tear this shit apart, recused and smiling. These Democrats do not seem to know what a special prosecutor is.
+You think Jeff Sessions is playing Sega? Hes about to tear this shit apart, recused and smiling. These Democrats do not seem to know what a special prosecutor is.  
+___
+2/23/2017  
+[Australians protest at Netanyahu's first visit, call him 'war criminal’](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=3&cad=rja&uact=8&ved=0ahUKEwj--YvOjqfSAhVGfiYKHV0mDIsQqUMIJDAC&url=http%3A%2F%2Fwww.presstv.ir%2FDetail%2F2017%2F02%2F23%2F511784%2FAustralia-Israel-Sydney&usg=AFQjCNEnCPibxWjeXoFsr7nfcBJUcvvM_Q&bvm=bv.148073327,d.eWE)  
+[Netanyahu blasts U.N. 'hypocrisy', Australian PM opposes 'one-sided resolutions'](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=2&cad=rja&uact=8&ved=0ahUKEwj--YvOjqfSAhVGfiYKHV0mDIsQqUMIIDAB&url=http%3A%2F%2Fwww.reuters.com%2Farticle%2Fus-australia-israel-idUSKBN16108Z&usg=AFQjCNH-XvnXLdPDXId8JjumcB8QW-frUQ)  
+Q@ : I'm 42 and the Australian PM calling out Israel for sabotaging peace in the Middle East is a unique, watershed moment. Anybody else find it instructive that there is a virtually a complete media blackout in America? Say it out loud. Of course you will be called an anti-semite - that shouldnt bother you anymore.[the General Discussion at the Wiki Home Page](https://github.com/ErmacX/ErmacX.github.io/wiki)
+
 
