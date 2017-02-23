@@ -2,7 +2,7 @@
 # ErmacX News
 ### A superior, thoughtful political quora - measured, balanced, and refined for meaningful discourse.
 ___
-![flag](https://upload.wikimedia.org/wikipedia/en/thumb/a/a4/Flag_of_the_United_States.svg/1235px-Flag_of_the_United_States.svg.png)  
+![flag](https://github.com/ErmacX/ErmacX.github.io/blob/master/Old_american_flag_a.jpg?raw=true)  
 
 ___
 Here is a link to [the General Discussion at the Wiki Home Page](https://github.com/ErmacX/ErmacX.github.io/wiki)
