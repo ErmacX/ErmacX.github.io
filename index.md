@@ -1,6 +1,7 @@
 
 # ErmacX News
-A superior, thoughtful political quora - measured, balanced, and refined for meaningful discourse.  
+A superior, thoughtful political quora(@Q)   
+measured, balanced, and refined for meaningful discourse.  
 
 ___
 ![flag](https://github.com/ErmacX/ErmacX.github.io/blob/master/Old_american_flag_a.jpg?raw=true)  
