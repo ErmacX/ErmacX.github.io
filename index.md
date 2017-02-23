@@ -1,6 +1,6 @@
 
 # ErmacX News
-A superior, thoughtful political quora(@Q)   
+A superior, thoughtful political quora (@Q):   
 measured, balanced, and refined for meaningful discourse.  
 
 ___
