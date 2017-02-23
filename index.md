@@ -1,17 +1,10 @@
 
 # ErmacX News
-[###Markdown] # Header 1 a sound, measured and serious place
-for balanced and thoughtful discourse
+### A superior, thoughtful political quora - measured, balanced, and refined for meaningful discourse.  
+___
 
-Bullshit of the day:
-
-Here is a link to [wiki home page](https://github.com/ErmacX/ErmacX.github.io/wiki)
-
-Test2
-Test3
-Test4
-Test5  
-Test6
+Here is a link to [the General Discussion at the Wiki Home Page](https://github.com/ErmacX/ErmacX.github.io/wiki)  
+Test7
 
 
 Aren't we witnessing the most proactive and independent President of a generation trample the swamp, left in utter disbelief?
