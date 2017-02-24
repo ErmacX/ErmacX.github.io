@@ -13,6 +13,8 @@ ___
 
 
 2/23/2017  
+  
+    
 ![fascist](https://github.com/ErmacX/ErmacX.github.io/blob/master/7d5a35a9-681f-4b53-8063-fb2813bc122d.jpg)
  
  
@@ -21,7 +23,7 @@ ___
   
   
 
-___
+
 [Australians protest at Netanyahu's first visit, call him 'war criminal’](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=3&cad=rja&uact=8&ved=0ahUKEwj--YvOjqfSAhVGfiYKHV0mDIsQqUMIJDAC&url=http%3A%2F%2Fwww.presstv.ir%2FDetail%2F2017%2F02%2F23%2F511784%2FAustralia-Israel-Sydney&usg=AFQjCNEnCPibxWjeXoFsr7nfcBJUcvvM_Q&bvm=bv.148073327,d.eWE)  
 
 [Netanyahu blasts U.N. 'hypocrisy', Australian PM opposes 'one-sided resolutions'](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=2&cad=rja&uact=8&ved=0ahUKEwj--YvOjqfSAhVGfiYKHV0mDIsQqUMIIDAB&url=http%3A%2F%2Fwww.reuters.com%2Farticle%2Fus-australia-israel-idUSKBN16108Z&usg=AFQjCNH-XvnXLdPDXId8JjumcB8QW-frUQ)  
