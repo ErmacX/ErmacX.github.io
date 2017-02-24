@@ -14,7 +14,7 @@ You think Jeff Sessions is playing Sega? Hes about to tear this shit apart, recu
 ___  
 
 2/23/2017  
-![](ErmacX.github.io/fascist.jpeg )  
+![](https://github.com/ErmacX/ErmacX.github.io/blob/master/fascist.jpeg)  
 
 [Australians protest at Netanyahu's first visit, call him 'war criminal’](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=3&cad=rja&uact=8&ved=0ahUKEwj--YvOjqfSAhVGfiYKHV0mDIsQqUMIJDAC&url=http%3A%2F%2Fwww.presstv.ir%2FDetail%2F2017%2F02%2F23%2F511784%2FAustralia-Israel-Sydney&usg=AFQjCNEnCPibxWjeXoFsr7nfcBJUcvvM_Q&bvm=bv.148073327,d.eWE)  
 
