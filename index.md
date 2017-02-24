@@ -13,7 +13,7 @@ ___
 
 
 2/23/2017  
-___  
+![fascist](https://github.com/ErmacX/ErmacX.github.io/blob/master/7d5a35a9-681f-4b53-8063-fb2813bc122d.jpg)
  
  
  
